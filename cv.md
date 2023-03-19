@@ -5,8 +5,9 @@
 ## Contact information
 
 **Phone:** +375 29 263-12-61
-**Email:** valentina@gmail.com
+**Email:** valentina.nasanovich@gmail.com
 **GitHub:** [vnasanovich](https://github.com/vnasanovich)
+**Discord:** Valentina (@vnasanovich)
 
 ---
 
